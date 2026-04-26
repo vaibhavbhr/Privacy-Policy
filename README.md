@@ -1,1 +1,1 @@
-# Privacy-Policy
+# Titanium Privacy Policy
